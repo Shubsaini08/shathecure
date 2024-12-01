@@ -7,6 +7,8 @@ HD WALLETS
 
    ‼️ ...DONATIONS ARE WELCOME HERE.... ‼️
 
+   contact us on our channels given in end:
+   
 # COMMAND 
 
 YOU HAVE NOTHING TO DO.... 
